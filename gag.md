@@ -1,0 +1,1 @@
+make 2024 contribrutions to text "HIRE ME !" in darker green and remove other contributions from 2024. 
